@@ -2,7 +2,7 @@
 
 ## Нелюдимов Роман
 **Мужчина, 42 года, родился 24 сентября 1983**
-![](https://drive.google.com/file/d/15hoDXWkvrc8GxWxwS_EKpIY4v8cme1pA/view?usp=sharing)
+![Фото](https://disk.yandex.ru/i/b2wU-Rs6KZQGEw)
 
 ### Контактная информация
 - **Телефон:** +7 (902) 760-06-67 *(предпочитаемый способ связи)*
